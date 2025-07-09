@@ -5,7 +5,7 @@
 
 >> Gmt+8 (🇵🇭)
 
-*Before anything else important, I want to clarify that I am **OBVIOUSLY NOT** a Nazi; For I am literally the opposite of that if you haven't seen my [Rentry](https://rentry.co/tacticalysmic). **I just like history is all, the concept of it and also because I like countryballs.***
+*Before anything else important, I want to clarify that I am **OBVIOUSLY NOT** a Nazi; For I am literally the opposite of that. **I just like history is all, the concept of it and also because I like countryballs (not Polandball specific).***
 
 *At first, yes -you may think that I am because of jokes i make around friends that allow me to/I am comfortable with, but that is just **my dark humor**. I do not condone my actions online in real life, nor do I do the things I state a fictional character does.*
 
