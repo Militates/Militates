@@ -15,7 +15,7 @@
 
 >> I mostly don't show this type of humor, like at all. I only act like it when a friend that I'm comfortable with is with me and they let me do those jokes. Yet, its still something to be aware of. Since you may not want your friend to be deemed " problematic ".
 
->> I am a Communist (SHOCKER!). Is it too straight-forward? No, just being quick with it. Check my Rentry for an explanation on why (At the very bottom).
+>> I am a Communist. Is it too straight-forward? No, just being quick with it. Check my Rentry for an explanation on why (At the very bottom).
 
 ## DNI & Pony town info
 DNI
