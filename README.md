@@ -9,6 +9,8 @@
 
 *At first, yes -you may think that I am because of jokes i make around friends that allow me to/I am comfortable with, but that is just **my dark humor**. I do not condone my actions online in real life, nor do I do the things I state a fictional character does.*
 
+![](https://github.com/Militates/Militates/blob/03978fb907f29fcf5126778b0ebe1477b4ac86ad/Anschlussderpoland.png)
+
 ## friendship note
 > If you are thinking about interacting with me and wanting to be friends, here are some things to note (these are the reasons why I only have a few friends);
 >> I have dark humor. I don't like when someone is too sensitive when a conversation/friendship escalates. You're the one who interacted with me, so you shouldn't be complaining (much).
