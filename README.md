@@ -30,4 +30,6 @@ Pony town info
 
 > I sometimes have offline status on; if you see me on the map PLEASE don't whisper me/interact with me. Most of the time that means I'm already playing with someone else, and that's mostly when my dark humor comes into play. So if you aren't comfortable about me talking about that stuff near you because I'm with someone else and you weren't even suppose to be with me, don't interact with me.
 
+![](https://github.com/Militates/Militates/blob/b04ed33a1df4b60b4dfc30bff2bd052737fb99e6/sovietrevolution.gif)
+
 ![](https://github.com/Militates/Militates/blob/main/REICHAOS.png)
