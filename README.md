@@ -19,6 +19,8 @@
 
 >> I am a Communist. Is it too straight-forward? No, just being quick with it. Check my Rentry for an explanation on why (At the very bottom).
 
+>> I do not like the ideology of transitioning. IWEC if you're a transgender person. You are destroying yourself. You, your mind, and your body. Please reconsider.
+
 ## DNI & Pony town info
 DNI
 > DNI list? Don't got one. Feel free to interact with me if you can handle my side personality -unless you're intentionally trying to be annoying and or obnoxious; then no, you aren't free to talk to me! But then again, you only live once so make of it what you will.
