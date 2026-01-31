@@ -1,7 +1,7 @@
 ![](https://raw.githubusercontent.com/Militates/Militates/refs/heads/main/RENTRY.webp)
 ## hello/introduction
 > Name's Outlaw and or Tenko. I don't mind what you call me, but I prefer Outlaw more; and for Tenko -I prefer closer friends to call me by it.
->> I am strictly a male.
+>> I am a CIS FEMALE.
 
 >> Gmt+8 (🇵🇭)
 
